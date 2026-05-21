@@ -1,1 +1,0 @@
-# houseofmendz.github.io
